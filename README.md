@@ -177,5 +177,3 @@ Here’s how **Glyphic Codexica** surpasses existing platforms:
 © Wesley Gordon Clark Bastardi. All rights reserved.  
 
 **Glyphic Codexica™** is a trademark of Wishful Groove Cloudy Creations.
-
----
